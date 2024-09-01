@@ -1,0 +1,1 @@
+Aspiring Software Engineer with a passion for building innovative solutions. Continuously seeking new opportunities to learn and grow by creating impactful projects using diverse technologies and languages.
